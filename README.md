@@ -1,1 +1,1 @@
-https://Mein-Hack.github.io
+https://search.github.io
